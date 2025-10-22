@@ -1,0 +1,1 @@
+# Tayurnel-UK-Trademark-Declaration
